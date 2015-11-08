@@ -1,4 +1,4 @@
-Exceptional Reality Group Website
+Exceptional Realty Group Website
 ---
 
 # Description
